@@ -1,0 +1,4 @@
+- ✨ Olá, meu nome é @samuwij
+- 👀 email de contato gabriela.mantovanini.silva@escola.pr.gov.pr 
+- 💞️ Interessado em programação 
+- 📫 JavaScript kys <3 
